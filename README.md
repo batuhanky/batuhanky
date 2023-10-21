@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **uController, Embedded Hardware and Electronics**
 
-- 📫 How to reach me **batuhan22662@hotmail.com**
+- 📫 How to reach me **batuhhan.kaya@gmail.com**
 
 - ⚡ Fun fact **I love to play video games and watch movies / animes**
 
